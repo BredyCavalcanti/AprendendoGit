@@ -1,0 +1,2 @@
+busque comer cimento
+busque conhecimento
